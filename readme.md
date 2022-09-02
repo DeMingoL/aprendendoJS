@@ -1,0 +1,1 @@
+esses scripts são exercícios e tutoriais que eu fiz e segui e deixei documentado pra referência depois
